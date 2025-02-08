@@ -1,2 +1,2 @@
 # Recycle.me
- Recycling Made Easy and Fun
+ Recycling Made Easy, Fun and Profitable 
